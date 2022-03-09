@@ -1,3 +1,3 @@
 # TestEncore
 
-[Schedule]()
+[Schedule](https://calendly.com/ruoxiren/testencore)
