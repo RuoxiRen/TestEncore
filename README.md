@@ -1,3 +1,3 @@
 # TestEncore
 
-[Schedule](https://calendly.com/ruoxiren/testencore?month=2022-03)
+[Schedule](https://calendly.com/ruoxiren/testencore)
